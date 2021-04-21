@@ -24,6 +24,9 @@
 - Utilized graphical design software to produce presentation slides and outreach flyers to build community relations to curtail the impact of tobacco. 
 - Assisted in data collection for the Health Foods and Healthy Community Survey in the city of Indio and Coachella Valley.
 
+## Extracurricular Activities
+- UCR SPP Dean's MPP Ambassador 2020-2021
+
 ## Professional Membership 
 - American Planning Association
 - Association for Public Policy Analysis & Management  
